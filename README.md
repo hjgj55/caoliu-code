@@ -1,5 +1,7 @@
 
-# 草榴邀请码/注册码获取经验分享：靠谱渠道、低价快速发货
+# 草榴社区邀请码/注册码获取经验分享：靠谱渠道、低价快速发货
+![](https://raw.githubusercontent.com/hjgj55/caoliu-code/refs/heads/main/cl2.jpg)
+![](https://raw.githubusercontent.com/hjgj55/caoliu-code/refs/heads/main/cl1.jpg)
 
 最近有不少朋友在问：**草榴社区的邀请码要去哪弄？怎么买才靠谱？** 这篇文章就简单分享一下我的经验，希望对需要的人有帮助。
 
@@ -54,7 +56,6 @@
 如果你也正在找草榴的邀请码或者注册码，不妨留言或者私信交流下，我可以告诉你我是在哪里买的。
 
 ---
-购买网址：t6666y.com
-
+[购买网址](https://t6666y.com)
 > _本文仅为个人经验分享，不构成推荐或引导。使用第三方服务请自行甄别与判断风险。_
 
